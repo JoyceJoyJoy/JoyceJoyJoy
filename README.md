@@ -6,4 +6,4 @@ Meu nome é Joyce Salvatori
 - Estou me desenvolvendo na línguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-![]( https://media.tenor.com/rUHW0s5ozZoAAAAC/bakugo-mha.gif)
+![]( https://media.tenor.com/u1ZgalGoA7UAAAAC/zhongli-genshin-impact.gif)
